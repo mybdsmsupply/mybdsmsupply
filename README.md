@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mybdsmsupply or #aaroncolehale 
+- 👀 I’m interested in ... creating meaningful change by connecting people to money making opportunities through the metaverse an other stuff :)
+- 🌱 I’m currently learning ... about nfts and crypto opportunities 
+- 💞️ I’m looking to collaborate on ... a few project ideas that are going to rock the market
+- 📫 How to reach me ... Aaroncolehale2@gmail.com 
